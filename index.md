@@ -11,4 +11,9 @@ Abhi kl se cheeze kaafi bdlne wali hai, like sab kuch nya nya hoga, last time ai
 
 Basically jo sabse basic aur fundamental questions hai universe ke, aise sawalon ke jawab dhoondne me mai apna chote se chota bhi contribution de sakoon toh will be very nice i thought. But at the same time jha itney saare log (almost sabhi) khudko in sawalon se distract krke money ke piche bhaag rhe hai aur bss yaa toh survival krne me busy hai yaa rich hai toh life enjoy krna chahte hai. Aisi society me aam baat hai ki money kaafi dominant factor hai, aur though mere goals hmesha se clear rhe hai, pr mai bhi ek thik thak life jeena chahta hoon, I mean koi bhi poor hona deserve hi nhi krta, sabko ek dignified life jeene ka haq milna chaiye, unfortunately, itney salon ke evolution ke baad bhi, humans apne aap ko survival ke khel se aazad ni kr paye hai. That's a different topic jis pr baad me kbhi baat krenge. Pehli problem apni life astronomy ko dedicate krne ki hai ki Money, yeh passion me bahut jyada paisa hai nhi, especially not here in india, second reason is lack of opportunities and the steep competition. Eventually causing less chances of me being successfully an Astrophysicist let alone an successful Astrophysicist.
 
+
+2N2B-
+
+Kya karoon mai, shuruwaat se shuru krne ka samay bhi nhi hai, naa hi woh smart tarika hai, isse accha toh chalte raho, koi dikkat aaye toh dekh lena, hmm aadat nhi hai, pr krna toh hai naa... Kitna sure hu ki meko koi minor yaa major ni chaiye, kitna sure hu ki mai physics hi padhna chahta hu puri life dedicate krne ke liye taiyaar hu kya? Shayad jawab ni hai mere paas, yeh toh sure hai ki astro se related kuch bhi kruga toh i am okk. But agr mai koi non core me try kruga toh my direct competition will be those who already have 
+
 Started [editor on GitHub](https://github.com/AafienX/AafienX.github.io/edit/main/index.md) 
