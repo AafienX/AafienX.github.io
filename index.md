@@ -42,9 +42,15 @@ But I love the fact I Got people who despite of my ups/downs ready to play games
 
 
 
+
+
+
 3rd July 12:15 
 
-Bicycle ride on rainy evening, cold breeze and light drizzle and the sky washed in golden rays coming from the best sunset I have ever witnessed, with some of my bestest friends, oohooo!!! Memorable, one of those memories I would like to store forever. 
+Bicycle ride on rainy evening, cold breeze and light drizzle and the sky washed in golden rays coming from the best sunset I have witnessed in years, with some of my bestest friends, oohooo!!! What a day was yesterday, one of those memories I would like to store forever. 
+Today, I got one interview in some 15-20 minutes yepp, you got me it's vibess again. May be third time for me that I applied for Vibes, and also third time that I won't appear for interview. Why? May be scared of failure, as always feeling unprepared, feeling I am not worth it. May be something else...
+I know, this way it is never going to work, I have to overcome this, I will eventually, but right now, I do not feel ready for any failure or any rejection. :| 
+(Thanks for encouraging, sorry I can't.)
 
 
 
