@@ -42,6 +42,11 @@ But I love the fact I Got people who despite of my ups/downs ready to play games
 
 
 
+3rd July 12:15 
+
+Bicycle ride on rainy evening, cold breeze and light drizzle and the sky washed in golden rays coming from the best sunset I have ever witnessed, with some of my bestest friends, oohooo!!! Memorable, one of those memories I would like to store forever. 
+
+
 
 
 
