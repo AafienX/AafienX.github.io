@@ -33,7 +33,7 @@ Let us say ki mene plan kra, ke Physics me hi aage jana hai, toh aaram se 4+2+3+
 
 
 A day I would like to forget, and it kept getting worse every passing hour, woke up late not late enough to miss breakfast but lazy enough to. I hate lunch, hate daylight, hate going out in sun, hate the same old dal and rasam and weird dry sabjis for lunch, hate rushing from hostel to acads thrice, hate it when still after all the rush the only thing i was supposed to do goes pending, hate it when results are declared in classes, hate it when others get to see your answer sheets before you, hate it when everyone has already judged and made their opinions about you, hate it when I don't have to pretend my exam was bad, hate it when I feel embarrased, hate it when I hate my own self, hate being in here, just hate it!
-But I love the fact I Got people who despite of my ups/downs ready to play games and I also Love to end hectic day with a light hearted bollywood movie.
+But I love the fact I Got people who despite of my ups/downs always treat me same and I also Love to end such distressing day with a light hearted bollywood movie. (not a fan of bollywood though ;)
 
 
 
