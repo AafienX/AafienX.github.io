@@ -52,6 +52,8 @@ Today, I got one interview in some 15-20 minutes yepp, you got me it's vibess ag
 I know, this way it is never going to work, I have to overcome this, I will eventually, but right now, I do not feel ready for any failure or any rejection. :| 
 (Thanks for encouraging, sorry I can't.)
 
+I am writing here too often, I will certainly die of embarrasement if someone discovers the blog or finds its mine. Even if you find who I am pls plssss don't let me know you found this blog. 
+
 
 
 
