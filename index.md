@@ -58,5 +58,21 @@ I am writing here too often, I will certainly die of embarrasement if someone di
 
 
 
+7th July 20:39
+
+
+Slept late last night, around 2:30, it was our team's turn in 3D printing lab, took 12hrs to print GSLV_MK-3. Someone had to stay all the time in lab, watched 5th Ep. with Ds and Sh. Today, had lunch after weeks. Slept in the evening, missed coffee. 
+
+
+
+
+
+
+
+
+
+
+
+
 
 Started [editor on GitHub](https://github.com/AafienX/AafienX.github.io/edit/main/index.md) 
