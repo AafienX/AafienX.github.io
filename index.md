@@ -66,6 +66,43 @@ Slept late last night, around 2:30, it was our team's turn in 3D printing lab, t
 
 
 
+13July-1751
+
+A lot has happened in past 70 days, 70 days which felt merely like 70 seconds. Still remember me walking towards my hostel room, Sh who I knew very little then greeted me as I stepped out of lift, with my name, I was pretty nervous the whole day as always, I suck at socializing, I was nervous so freaking nervous, I didn't know if people that I had good virtual bonds will accept me or not, kinda dumb, I know, but normal for me, I avoid meeting people so much so I kinda get scared getting calls even from my friends. Oh back to hostels, day 1, walking through gallery I saw the door the number on it, bags in hands I opened the door, saw Sd and Vr for first time. Rest of the day I tried to stay away from 'new people' (all of them). My first dinner was Biryani with papa in LDH, I messed at mess registration I misheard Vr and had registered at LDH. Later on the night of the same day, people of our department planned in person meet. Hmm you got me, I tried but there was no way to avoid this meet, this was very first time that I was seeing these people few of whom I knew quite well most I barely talked, surrounded by twenty such peeps, was overwhelmed and I didn't know how to react was a bit awkard. Felt relieved when met Dv and Bt (Bt Made sure I won't forget his name ever). Next major character in the story has already made an appearance. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
