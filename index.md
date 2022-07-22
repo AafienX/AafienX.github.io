@@ -77,6 +77,10 @@ Trying to be honest or trying to be fool don't know, I gave up too early or ther
 Hmm, don't feel sleepy now, may be I'll wake up n go to chair and make it through this night, theres still difference between givin up all expectations to remove any kinda pressure I feel for it, n once I feel it less heavy theres no downside of givin one last try.
 
 
+22J1859
+
+Lost lost sa feel ho rha hai, pta ni kya ho rha hai life me, koi control nhi hai, bahut jada drr lg rha hai isi kaaran mn bhi ni hai kuch krne kaa. I always felt lack of some personal space, now when I am getting it, hmm I am more comfortable but never felt this lost or this much hopeless in months.
+It is much better than always being surrounded by dozen people, but this transition has got me feeling too lonely.
 
 
 
