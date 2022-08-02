@@ -84,7 +84,7 @@ It is much better than always being surrounded by dozen people, but this transit
 
 
 02A1540
-Anonymity is never an option even if one person breach it doesn't matter how close to you. The dreaded has happened, now the fear is will I ever go back to normal. do I even want to do it again knowing everybody will be there judging. yea I know nobody gives shit about who i am what do i do or anything, but matters to me, don't want my name to be even remotely mentione. Don't want to blame you, but it changed something.
+Anonymity is never an option even if one person breach it doesn't matter how close to you. The dreaded has happened, now the fear is will I ever go back to normal. do I even want to do it again knowing everybody will be there judging. yea I know nobody gives shit about who i am what do i do or anything, but matters to me, don't want my name to be even remotely mentione. Don't want to blame you, but it changed,you didn't have to do this.
 
 
 
