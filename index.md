@@ -86,7 +86,10 @@ It is much better than always being surrounded by dozen people, but this transit
 02A1540
 Anonymity is never an option even if one person breach it doesn't matter how close to you. The dreaded has happened, now the fear is will I ever go back to normal. do I even want to do it again knowing everybody will be there judging. yea I know nobody gives shit about who i am what do i do or anything, but matters to me, don't want my name to be even remotely mentione. Don't want to blame you, but it changed,you didn't have to do this.
 
+10A0058
+ Just being around and with people overall makes me so anxious.  Terrible social anxiety. The fear of rejection is probably my biggest fear for years already, as someone who is introverted and also has the fear of being judged, i know that I'm a people-pleaser, i am not myself when I'm with my friends, I'm completely different.
 
+I fell comfortable writing here because they probably won't see, all of my friends are cool and stuff, and i think that, if i do something wrong, they will hate me forever.
 
 
 
