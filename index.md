@@ -92,7 +92,10 @@ Anonymity is never an option even if one person breach it doesn't matter how clo
 I fell comfortable writing here because they probably won't see, all of my friends are cool and stuff, and i think that, if i do something wrong, they will hate me forever.
 
 
+14A2144
+... to not have to keep up with the opinions or expectations of others but just do what you want or need to do is actually a huge relief?
 
+Solitude is underrated.
 
 
 
