@@ -98,7 +98,7 @@ I fell comfortable writing here because they probably won't see, all of my frien
 Solitude is underrated.
 
 23S2051
-F* him yesterday was so freaking bad , did not feel comfortable in my room also, every minute I was struggling to not shout or burst in tears every passing day it is getting more n more worse Idk I just don't want to be around them, both of them. They knew I wasn't feeling 
+F* him yesterday was so freaking bad , did not feel comfortable in my room also, every minute I was struggling to not shout or burst in tears every passing day it is getting more n more worse Idk I just don't want to be around them, both of them. They knew what I was feeling 
 
 
 
